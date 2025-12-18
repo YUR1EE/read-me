@@ -10,6 +10,7 @@
 - Dnc my skins or ill block you
 - Always busy or afk
 - c+h are okay
+- I'm multifandom
 
 *`¯´*.¸¸.*`¯´*
 
